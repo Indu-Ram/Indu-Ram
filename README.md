@@ -1,6 +1,4 @@
 ### Hi there 👋
-
-
 - 📫 How to reach me:suriindu333@gmail.com
 - in/indu-ram-13530770
 - 😄 Pronouns: ...
